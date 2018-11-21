@@ -1,2 +1,2 @@
-# Bitva-dvou-kouzeln-k--cz
+# Bitva-dvou-kouzelníků--cz
 Kámen nůžky papír
